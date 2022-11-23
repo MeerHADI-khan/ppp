@@ -1,5 +1,5 @@
 # HaDI
-Paid___ Tools
+
 <b></b> </br> <br>[![Github](https://img.shields.io/badge/Github-HADI-dimgray?style=flat-square&logo=github)](https://github.com/MeerHADI-khan/ppp.git)<br> [![Facebook](https://img.shields.io/badge/Facebook-HADI-blue?style=flat-square&logo=facebook)](https:https://www.facebook.com/profile.php?id=100076381339868)<br> [![whatsapp](https://img.shields.io/badge/Whatsapp-HADI-deepgreen?style=flat-square&logo=whatsapp)](https://wa.me/+923163372011)
 
 
